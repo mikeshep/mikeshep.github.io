@@ -48,7 +48,7 @@ Nos reservamos el derecho a modificar esta política de privacidad en cualquier 
 
 **8. Contacto**
 
-Si tiene preguntas o preocupaciones sobre nuestra Política de Privacidad o prácticas de datos, por favor contáctenos a través de [método de contacto].
+Si tiene preguntas o preocupaciones sobre nuestra Política de Privacidad o prácticas de datos, por favor contáctenos a través del correo molmedop@outlook.com.
 
 Al utilizar la Aplicación, usted está de acuerdo con los términos de esta Política de Privacidad.
 
