@@ -1,6 +1,6 @@
 **Política de Privacidad de la Aplicación "Congreso de Salud Pública"**
 
-Fecha de entrada en vigor: [Fecha]
+Fecha de entrada en vigor: 9 de noviembre de 2023
 
 **1. Introducción**
 
